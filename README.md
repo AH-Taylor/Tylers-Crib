@@ -1,2 +1,2 @@
-# Tylers-Crib
-Welcome to Tylers Crib
+# Tylers Crib
+The home of all things me related!
